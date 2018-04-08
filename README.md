@@ -1,2 +1,2 @@
-# jarek-figura
-Jarek Figura portfolio
+# Jarek Figura
+#### Resume
